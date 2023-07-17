@@ -1,0 +1,1 @@
+https://academy.patika.dev
